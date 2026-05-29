@@ -14,4 +14,4 @@ Horizontal?
 [Ariana](https://shop.arianagrande.com/?srsltid=AfmBOoqCO461cvJ_cnIGf_11G8hutD2hIG3GPHjlG4u_RjDn5bAldFYg)
 
 ***
-![ariana's so talented](https://en.wikipedia.org/wiki/File:Ariana_Grande_promoting_Wicked_(2024).jpg)
+![ariana's so talented](https://www.billboard.com/wp-content/uploads/2024/01/ariana-grande-2021-billboard-1548.jpg?w=942&h=628&crop=1)
